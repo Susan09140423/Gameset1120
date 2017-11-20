@@ -16,7 +16,7 @@
 :smile:
 
 ## Video
-[![Hello Nico〈花〉](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=BlblBvpVgjE "Hello Nico〈花〉")
+[![Hello Nico〈花〉](http://www.gtp.tw/fb_gcover/i76QjQMdBgX8f0G4VF7P.jpg)](https://www.youtube.com/watch?v=BlblBvpVgjE "Hello Nico〈花〉")
 
 :green_heart:
 :heart:
