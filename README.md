@@ -16,10 +16,7 @@
 :smile:
 
 ## Video
-[Hello Nico〈花〉](http://www.gtp.tw/fb_gcover/i76QjQMdBgX8f0G4VF7P.jpg)](https://www.youtube.com/watch?v=BlblBvpVgjE "Flower")
+[![Everything Is AWESOME](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=StTqXEQ2l-Y "Everything Is AWESOME")
 
 :green_heart:
 :heart:
-
-[房東的貓《你是我最愚蠢的一次浪漫 》](https://i.ytimg.com/vi/3CexZ19H8rs/maxresdefault.jpg)](https://www.youtube.com/watch?v=DHMx_B9-zdY "Stupid Romance")
-
