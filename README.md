@@ -16,7 +16,7 @@
 :smile:
 
 ## Video
-[![Everything Is AWESOME](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=StTqXEQ2l-Y "Everything Is AWESOME")
+[![Hello Nico〈花〉](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=BlblBvpVgjE "Hello Nico〈花〉")
 
 :green_heart:
 :heart:
